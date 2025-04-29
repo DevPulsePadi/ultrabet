@@ -1,4 +1,4 @@
-# 🎁 Deneme Bonusu Veren Siteler - Güncel Giriş Linkleri
+# 🎁 ULTRABET
 
 Bu repoda, kullanıcılarına **ücretsiz deneme bonusu** sunan güncel bahis siteleri listelenmektedir. Bonuslar; kayıt sonrası verilen promosyonlar, freespin kampanyaları ve çevrimsiz kayıp bonusları gibi fırsatları kapsamaktadır.
 
@@ -24,7 +24,3 @@ Bu siteler yurtdışı kaynaklı bahis platformlarıdır ve yasal düzenlemeler 
 ## 🧭 Hızlı Erişim
 
 🔗 Tüm kampanyalara ulaşmak için [https://betbigo.app/](https://betbigo.app/) adresini ziyaret edin.
-
----
-
-> Görseller promosyon amaçlıdır ve ilgili sitelerin mülkiyetindedir.
